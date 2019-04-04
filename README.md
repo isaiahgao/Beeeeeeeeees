@@ -1,2 +1,1 @@
-# BeeLine
-A project by: Isaiah Gao, Nick Garza, Nancy Wang, Bronte Wen
+# :crab: BEEES IS DEAD :crab:
